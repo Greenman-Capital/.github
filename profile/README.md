@@ -1,6 +1,6 @@
 # Greenman Venture Capital
 
-By invite only venture capital. 
+INVITE ONLY VENTURE CAPITAL. 
 
 "BLESSING ONLY RESTS ON THAT WHICH IS HIDDEN FROM THE EYE"
 
